@@ -2,7 +2,7 @@ README.md
 
 # Conclusiones Clase 11 de agosto 
 
-En la clase desarrollada el 11/08 junto a mi grupo formado por Arlette Fernández y Victoria García, analizamos algunos temas para desarrollar durante el semestre enfocados en educación, mujeres y política y Taylor Swift, los cuales se pueden encontrar en el siguiente link: (https://miro.com/app/board/uXjVMuvl9zs=/?share_link_id=311829180689)
+En la clase desarrollada el 11/08 junto a mi grupo formado por Arlette Fernández y Victoria García, analizamos algunos temas para desarrollar durante el semestre enfocados en educación, mujeres y política y Taylor Swift, los cuales se pueden encontrar en el siguiente link: https://miro.com/app/board/uXjVMuvl9zs=/?share_link_id=311829180689
 
 Por lo mismo y a través de las retroalimentaciones entregadas por las profesoras, llegamos a algunas conclusiones que nos permitieron seleccionar nuestro tema principal y que desarrollaremos en el trabajo: Mujeres y política. 
 
