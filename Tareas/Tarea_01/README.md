@@ -1,4 +1,3 @@
-README.md
 
 # Conclusiones Clase 11 de agosto 
 
